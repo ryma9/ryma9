@@ -12,3 +12,4 @@
 
 ### 📫 Connect with Me
 - 💼 [LinkedIn](https://www.linkedin.com/in/reem-abdallah-3436a6370)
+- ✉️ [Email](reemyab1@gmail.com)
